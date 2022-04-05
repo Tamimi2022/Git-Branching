@@ -1,1 +1,1 @@
-**Hi** _My name is__ **_Farid Attamimi_**
+**Hi** _My name is_ **_Farid Attamimi_**
